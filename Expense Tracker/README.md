@@ -79,7 +79,6 @@ To get started create a new account using your email.
 ![323459804-dbcfdbd2-d515-4197-b5ff-11ba0aed2dcf](https://github.com/user-attachments/assets/9a888586-ac31-4ddf-b803-64268dc52a0f)
 ![324421868-a8e6d65b-626f-493e-922d-dd7c26d8294c](https://github.com/user-attachments/assets/9400b6e6-faaf-47f8-b6c7-0f9e0faa8bf9)
 ![324422170-7e43cb13-6187-4af0-8900-66afef908f66](https://github.com/user-attachments/assets/43713cfc-057c-415b-81a2-8a3b9efd86a1)
-![WhatsApp Image 2025-02-24 at 14 15 59_eebc1422](https://github.com/user-attachments/assets/a4382294-0984-4143-89d5-13b626358f42)
 ![323460242-06454812-f542-4404-b9bf-e7d9b96b043d](https://github.com/user-attachments/assets/b1da2144-076f-43f3-814e-59265c182534)
 
 
